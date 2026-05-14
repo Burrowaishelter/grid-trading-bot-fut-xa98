@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with secure grid trading bot for futures | trailing-stop + cross-margin, the #1 grid trading bot for futures. Includes trailing-stop and cross-margin for a
 
 
 
